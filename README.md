@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KariRyttinen
+- 👀 I’m interested in YO MAMA (Anime, Games, Movies etc.)
+- 🌱 I’m currently learning Javascript, PHP, HTML and much more in school.
+- 💞️ I’m looking to collaborate on Interbullet Studios
+- 📫 How to reach me DM me on Discord Kalle#1946
